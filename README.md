@@ -1,0 +1,1 @@
+# qoyon-darsi-osonlashtirilgan-varianti
